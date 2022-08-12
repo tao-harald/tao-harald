@@ -1,1 +1,1 @@
-Undergraduate student studying Mathematics in Sun Yat-sen University, interested in algebra.
+Master's Student studying Mathematics in Sun Yat-sen University, interested in algebraic geometry and algebraic topology.
